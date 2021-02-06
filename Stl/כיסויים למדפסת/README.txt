@@ -1,0 +1,1 @@
+Ender 3 V2 cable chain mount with all other relevant V2 cable chain parts by WiredEarp on Thingiverse: https://www.thingiverse.com/thing:4645166
