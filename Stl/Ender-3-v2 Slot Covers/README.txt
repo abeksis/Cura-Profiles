@@ -1,0 +1,1 @@
+Ender 3 v2 - v slot covers by sporte77 on Thingiverse: https://www.thingiverse.com/thing:4707497
